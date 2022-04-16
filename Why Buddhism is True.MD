@@ -573,3 +573,21 @@ As we’ll see in the next chapter, this absence of control is part, though by n
 
 ## 5 The Alleged Nonexistence of Your Self
 
+Ajahn Chah, a twentieth-century Thai monk who did much to spread awareness of Vipassana meditation in the West, used to warn about the difficulty of grasping the Buddhist idea of anatta, or “not-self.” The basic idea is that the self—your self, my self—in some sense doesn’t exist. “To understand not-self, you have to meditate,” he advised. If you try to grasp the doctrine through “intellectualizing” alone, “your head will explode.”
+
+I’m happy to report that he was wrong about the exploding head. You can try to fathom not-self without meditating and without fear of detonation. I’m not saying you’ll succeed in fathoming not-self. I’ll try to help you get as close to success as possible, but if at the end of this chapter you feel you still don’t have a crystal-clear understanding of the idea, don’t worry: you’re not alone.
+
+Anyway, Ajahn Chah wasn’t just making a point about the difficulty of grasping this idea intellectually. He was also underscoring the importance, in Buddhism, of grasping key ideas experientially, through meditation. There’s a big difference between seeing the not-self doctrine in the abstract and really seeing—or, in a way, feeling—what it means firsthand. And that’s particularly true if you want to not just apprehend the idea of not-self but actually put it to use, harness it to become a happier person and even a better person: to feel a new sense of connection with your fellow creatures and a new sense of generosity toward them. According to Buddhism, truly, deeply realizing that you are selfless—in the sense of not having a self—can make you selfless in the more familiar sense of the term.
+
+Listen to how dramatically Walpola Rahula, a Buddhist monk who in 1959 published an influential book called What the Buddha Taught, put the matter: “According to the teaching of the Buddha, the idea of self is an imaginary, false belief which has no corresponding reality, and it produces harmful thoughts of ‘me’ and ‘mine,’ selfish desire, craving, attachment, hatred, ill-will, conceit, pride, egoism, and other defilements, impurities, and problems. It is the source of all the troubles in the world from personal conflicts to wars between nations. In short, to this false view can be traced all the evil in the world.”
+
+Kind of makes you wish more people would realize they don’t have a self! But here we run into a problem: experiencing full-fledged not-self is typically reported only by meditators who have done a whole, whole lot of meditating—certainly more than I’ve done. If saving the world depends on a big chunk of the human race having this experience, we may be in for a long wait.
+
+But we have to start somewhere! And here there is good news. The not-self experience isn’t strictly binary. You don’t have to think of it as a threshold that you either manage to finally cross, to transformative effect, or forever fall short of, getting no edification whatsoever. As strange as it may sound, you can, with even a fairly modest daily meditation practice, experience a little bit of not-self. Then, as time goes by, maybe a little more. And—who knows—maybe someday you’ll have the full-on, transformative version of the experience. But even if you don’t, important and lasting progress can be made, and benefits, for you and for humankind, can accrue along the way.
+
+And, actually, I’d say that what Ajahn Chah called “intellectualizing”—trying to understand not-self conceptually, in the abstract—can help a person get on this path of meditative progress. Particularly worthwhile, I think, is pondering the argument that the Buddha himself made about not-self.
+
+Before we start the pondering, maybe I should put a warning label on top of Ajahn Chah’s warning label, because the Buddha’s argument has quirks that in some ways steepen the inherent challenge of grasping the concept. He analyzes the human mind in ways that the average psychologist, and for that matter you and I, probably wouldn’t analyze it. But after this chapter we’ll be back on the firmer-feeling terrain of modern science, and in the meanwhile there is real practical value in trying to look at the whole thing the way the Buddha looked at it.
+
+### The Seminal Not-Self Sermon
+
